@@ -1,0 +1,2 @@
+# mimitttt
+buat kesayanganku
